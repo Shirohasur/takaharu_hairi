@@ -1,0 +1,2 @@
+# takaharu_hairi
+nanaironoqo
